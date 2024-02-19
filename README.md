@@ -1,0 +1,1 @@
+# python-da-ishlatiladigan-kodlar
